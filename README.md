@@ -15,7 +15,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/drive/folders/1Gz37MUsrk7JF-qWl8TLPmmchh8BmFtM1?usp=sharing](https://drive.google.com/drive/folders/1Gz37MUsrk7JF-qWl8TLPmmchh8BmFtM1?usp=sharing)
 
-- ⚡Fun Fact 🌱 When I’m not coding, you’ll likely find me in the garden, practicing yoga, or diving into a good book! 🌻📚🧘‍♀️ Balancing code with nature and wellness keeps my creativity flowing and my mind sharp. It’s a unique way to show that you’re a well-rounded individual beyond your tech skills!**
+- ⚡Fun Fact 🌱 When I’m not coding, you’ll likely find me in the garden, practicing yoga, or diving into a good book! 🌻📚🧘‍♀️ Balancing code with nature and wellness keeps my creativity flowing and my mind sharp. It’s a unique way to show that you’re a well-rounded individual beyond your tech skills!
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
